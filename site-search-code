@@ -1,0 +1,31 @@
+Google Sight Search Code
+
+Instructions for site search deployment:
+Copy the following code, and paste it into a <div> element in the site's <body> section, where the search box will render. 
+I've set the results page to display as an overlay so the search bar can be placed in the navigation bar or anywhere 
+else in the site's body. For a live example of this set up visit: www.ecowatch.com
+
+Note: For the most cross-browser compatibility, it is recommended that HTML pages use a supported doctype such as 
+<!DOCTYPE html>. CSS hover effects require a supported doctype.
+
+
+
+<script>
+  (function() {
+    var cx = '015851646298580987134:lmvxd65ane0';
+    var gcse = document.createElement('script');
+    gcse.type = 'text/javascript';
+    gcse.async = true;
+    gcse.src = 'https://cse.google.com/cse.js?cx=' + cx;
+    var s = document.getElementsByTagName('script')[0];
+    s.parentNode.insertBefore(gcse, s);
+  })();
+</script>
+<gcse:search></gcse:search>
+
+
+
+NOTE:
+Search customization, including colors, page layout, etc. are available. These can be optimized by Jens through Google 
+without any script manipulation.
+
