@@ -1,4 +1,4 @@
-<div id="navbar" class="navbar-collapse collapse">
+<!--<div id="navbar" class="navbar-collapse collapse">
   <div class="navbar-right user-info">Welcome, <span class="user-fullname">First Last</span> <a class="btn btn-default btn-sm">Logout</a></div>
   <form class="navbar-form navbar-right" role="form" id="login-form">
     <div class="form-group">
@@ -9,11 +9,11 @@
     </div>
     <a class="btn btn-default btn-sm">Login</a>
   </form>
-</div><!--/.navbar-collapse -->
+</div>
 </div>
 </nav>
 
-$( document ).ready(function() {
+ $( document ).ready(function() {
 var userInfo = {
     firstName: 'Jane',
     lastName: 'Doe'
@@ -31,4 +31,4 @@ $('#login-form .btn').on('click', function() {
         $( "#user-fullname" ).append( $( "userInfo" ) );
 
 
-    });
+    });-->
