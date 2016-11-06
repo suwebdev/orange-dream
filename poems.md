@@ -1,341 +1,344 @@
 #Maya Angelou#
+<br>
+<br>
+**Awaking in New York** <br>
+*Shaker, Why Don’t You Sing, 1983* <br>
+<br>
+Curtains forcing their will <br>
+against the wind, <br>
+children sleep, <br>
+exchanging dreams with <br>  
+seraphim. The city <br>
+drags itself awake on <br>
+subway straps; and <br>
+I, an alarm, awake as a <br>
+rumor of war, <br>
+lie stretching into dawn, <br>   
+unasked and unheeded. <br>
 
-**Awaking in New York**
-*Shaker, Why Don’t You Sing, 1983*
+**The Mothering Blackness** <br>
+*Just Give Me a Cool Drink of Water Fore I Die, 1971* <br>
+<br>
+She came home running <br>
+       back to the mothering blackness <br> 
+       deep in the smothering blackness<br>
+white tears icicle gold plains of her face <br>  
+       She came home running <br>
+<br>
 
-Curtains forcing their will   
-against the wind,
-children sleep,
-exchanging dreams with   
-seraphim. The city
-drags itself awake on   
-subway straps; and
-I, an alarm, awake as a   
-rumor of war,
-lie stretching into dawn,   
-unasked and unheeded.
-
-**The Mothering Blackness**
-*Just Give Me a Cool Drink of Water Fore I Die, 1971*
-
-She came home running
-       back to the mothering blackness   
-       deep in the smothering blackness
-white tears icicle gold plains of her face   
-       She came home running
-
-She came down creeping
-       here to the black arms waiting
-       now to the warm heart waiting
-rime of alien dreams befrosts her rich brown face   
-       She came down creeping
-
-She came home blameless
-       black yet as Hagar’s daughter
-       tall as was Sheba’s daughter
-threats of northern winds die on the desert’s face   
+She came down creeping <br>
+       here to the black arms waiting <br>
+       now to the warm heart waiting <br>
+rime of alien dreams befrosts her rich brown face <br>   
+       She came down creeping <br>
+<br>
+She came home blameless <br>
+       black yet as Hagar’s daughter <br>
+       tall as was Sheba’s daughter <br>
+threats of northern winds die on the desert’s face<br>   
        She came home blameless</p> <br>
-
-**Phenomenal Woman**
-*And Still I Rise, 1978*
-
-Pretty women wonder where my secret lies.
-I’m not cute or built to suit a fashion model’s size   
-But when I start to tell them,
-They think I’m telling lies.
-I say,
-It’s in the reach of my arms,
-The span of my hips,   
-The stride of my step,   
-The curl of my lips.   
-I’m a woman
-Phenomenally.
-Phenomenal woman,   
-That’s me.
-
-I walk into a room
-Just as cool as you please,   
-And to a man,
-The fellows stand or
-Fall down on their knees.   
-Then they swarm around me,
-A hive of honey bees.   
-I say,
-It’s the fire in my eyes,   
-And the flash of my teeth,   
-The swing in my waist,   
-And the joy in my feet.   
-I’m a woman
-Phenomenally.
-
-Phenomenal woman,
-That’s me.
-
-Men themselves have wondered   
-What they see in me.
-They try so much
-But they can’t touch
-My inner mystery.
-When I try to show them,   
-They say they still can’t see.   
-I say,
-It’s in the arch of my back,   
-The sun of my smile,
-The ride of my breasts,
-The grace of my style.
-I’m a woman
-Phenomenally.
-Phenomenal woman,
-That’s me.
-
-Now you understand
-Just why my head’s not bowed.   
-I don’t shout or jump about
-Or have to talk real loud.   
-When you see me passing,
-It ought to make you proud.
-I say,
-It’s in the click of my heels,   
-The bend of my hair,   
-the palm of my hand,   
-The need for my care.   
-’Cause I’m a woman
-Phenomenally.
-Phenomenal woman,
-That’s me.
-
+<br>
+**Phenomenal Woman** <br>
+*And Still I Rise, 1978* <br>
+<br>
+Pretty women wonder where my secret lies. <br>
+I’m not cute or built to suit a fashion model’s size <br>   
+But when I start to tell them, <br>
+They think I’m telling lies. <br>
+I say, <br>
+It’s in the reach of my arms, <br>
+The span of my hips, <br>
+The stride of my step, <br>
+The curl of my lips. <br>
+I’m a woman <br>
+Phenomenally. <br>
+Phenomenal woman, <br>  
+That’s me. <br>
+<br>
+I walk into a room <br>
+Just as cool as you please, <br>   
+And to a man, <br>
+The fellows stand or <br>
+Fall down on their knees. <br>   
+Then they swarm around me, <br>
+A hive of honey bees. <br>
+I say, <br>
+It’s the fire in my eyes, <br>   
+And the flash of my teeth, <br>
+The swing in my waist, <br>
+And the joy in my feet. <br>
+I’m a woman <br>
+Phenomenally. <br>
+<br>
+Phenomenal woman, <br>
+That’s me. <br>
+<br>
+Men themselves have wondered <br>   
+What they see in me. <br>
+They try so much <br>
+But they can’t touch <br>
+My inner mystery. <br>
+When I try to show them, <br>   
+They say they still can’t see. <br>   
+I say, <br>
+It’s in the arch of my back, <br>   
+The sun of my smile, <br>
+The ride of my breasts, <br>
+The grace of my style. <br>
+I’m a woman <br>
+Phenomenally. <br>
+Phenomenal woman, <br>
+That’s me. <br>
+<br>
+Now you understand <br>
+Just why my head’s not bowed. <br>   
+I don’t shout or jump about <br>
+Or have to talk real loud. <br>  
+When you see me passing, <br>
+It ought to make you proud. <br>
+I say, <br>
+It’s in the click of my heels, <br>  
+The bend of my hair, <br>   
+the palm of my hand, <br>   
+The need for my care. <br>   
+’Cause I’m a woman <br>
+Phenomenally. <br>
+Phenomenal woman, <br>
+That’s me. <br>
+<br>
 #Henrik Ibsen#
+<br>
+<br>
+**Burnt Ships** <br>
+*1871, Translation Lyrics and Poems from Ibsen, 1912* <br>
+<br>
+O skies that were brighter <br>
+Turned he his prows; <br>
+To gods that were lighter <br>
+Made he his vows. <br>
+<br>
+The snow-land's mountains <br>
+Sank in the deep; <br>
+Sunnier fountains <br>
+Lulled him to sleep. <br>
+ <br>
+He burns his vessels, <br>
+The smoke flung forth <br>
+On blue cloud-trestles <br>
+A bridge to the north. <br>
+ <br>
+From the sun-warmed lowland <br>
+Each night that betides, <br>
+To the huts of the snow-land <br>
+A horseman rides. <br>
+<br>
 
-**Burnt Ships**
-*1871, Translation Lyrics and Poems from Ibsen, 1912*
-
-O skies that were brighter
-Turned he his prows;
-To gods that were lighter
-Made he his vows.
- 
-The snow-land's mountains
-Sank in the deep;
-Sunnier fountains
-Lulled him to sleep.
- 
-He burns his vessels,
-The smoke flung forth
-On blue cloud-trestles
-A bridge to the north.
- 
-From the sun-warmed lowland
-Each night that betides,
-To the huts of the snow-land
-A horseman rides.
-
-
-**The Miner**
-*1851, Translation Lyrics and Poems from Ibsen, 1912*
-
-Beetling rock, with roar and smoke
-Break before my hammer-stroke!
-Deeper I must thrust and lower
-Till I hear the ring of ore.
- 
-From the mountain's unplumbed night,
-Deep amid the gold-veins bright,
-Diamonds lure me, rubies beckon,
-Treasure-hoard that none may reckon.
- 
-There is peace within the deep--
-Peace and immemorial sleep;
-Heavy hammer, burst as bidden,
-To the heart-nook of the hidden!
- 
-Once I, too, a careless lad,
-Under starry heavens was glad,
-Trod the primrose paths of summer,
-Child-like knew not care nor cummer.
- 
-But I lost the sense of light
-In the poring womb of night;
-Woodland songs, when earth rejoiced her,
-Breathed not down my hollow cloister.
- 
-Fondly did I cry, when first
-Into the dark place I burst:
-"Answer spirits of the middle
-Earth, my life's unending riddle!--"
- 
-Still the spirits of the deep
-Unrevealed their answer keep;
-Still no beam from out the gloomy
-Cavern rises to illume me.
- 
-Have I erred? Does this way lead
-Not to clarity indeed?
-If above I seek to find it,
-By the glare my eyes are blinded.
- 
-Downward, then! the depths are best;
-There is immemorial rest.
-Heavy hammer burst as bidden
-To the heart-nook of the hidden!--
- 
-Hammer-blow on hammer-blow
-Till the lamp of life is low.
-Not a ray of hope's fore-warning;
-Not a glimmer of the morning.
-
-**To The Survivors**
-*1860, Translation Lyrics and Poems from Ibsen, 1912*
-
-Now they sing the hero loud; --
-But they sing him in his shroud.
- 
-Torch he kindled for his land;
-On his brow ye set its brand.
- 
-Taught by him to wield a glaive;
-Through his heart the steel ye drave.
- 
-Trolls he smote in hard-fought fields;
-Ye bore him down 'twixt traitor shields.
- 
-But the shining spoils he won,
-These ye treasure as your own.--
- 
-Dim them not, that so the dead
-Rest appeased his thorn-crowned head.
-
-
+**The Miner**<br>
+*1851, Translation Lyrics and Poems from Ibsen, 1912*<br>
+<br>
+Beetling rock, with roar and smoke <br>
+Break before my hammer-stroke! <br>
+Deeper I must thrust and lower <br>
+Till I hear the ring of ore. <br>
+<br> 
+From the mountain's unplumbed night, <br>
+Deep amid the gold-veins bright, <br>
+Diamonds lure me, rubies beckon, <br>
+Treasure-hoard that none may reckon. <br>
+<br>
+There is peace within the deep-- <br>
+Peace and immemorial sleep; <br>
+Heavy hammer, burst as bidden, <br>
+To the heart-nook of the hidden! <br>
+<br>
+Once I, too, a careless lad, <br>
+Under starry heavens was glad, <br>
+Trod the primrose paths of summer, <br>
+Child-like knew not care nor cummer. <br>
+<br>
+But I lost the sense of light <br>
+In the poring womb of night; <br>
+Woodland songs, when earth rejoiced her, <br>
+Breathed not down my hollow cloister. <br>
+<br>
+Fondly did I cry, when first <br>
+Into the dark place I burst: <br>
+"Answer spirits of the middle <br>
+Earth, my life's unending riddle!--" <br>
+<br>
+Still the spirits of the deep <br>
+Unrevealed their answer keep; <br>
+Still no beam from out the gloomy <br>
+Cavern rises to illume me. <br>
+<br>
+Have I erred? Does this way lead <br>
+Not to clarity indeed? <br>
+If above I seek to find it, <br>
+By the glare my eyes are blinded. <br>
+<br> 
+Downward, then! the depths are best; <br>
+There is immemorial rest. <br>
+Heavy hammer burst as bidden <br>
+To the heart-nook of the hidden!-- <br>
+<br>
+Hammer-blow on hammer-blow <br>
+Till the lamp of life is low. <br>
+Not a ray of hope's fore-warning; <br>
+Not a glimmer of the morning. <br>
+<br>
+**To The Survivors** <br>
+*1860, Translation Lyrics and Poems from Ibsen, 1912* <br>
+<br>
+Now they sing the hero loud; -- <br>
+But they sing him in his shroud. <br>
+<br>
+Torch he kindled for his land; <br>
+On his brow ye set its brand. <br>
+<br>
+Taught by him to wield a glaive; <br>
+Through his heart the steel ye drave. <br>
+<br>
+Trolls he smote in hard-fought fields; <br>
+Ye bore him down 'twixt traitor shields. <br>
+<br>
+But the shining spoils he won, <br>
+These ye treasure as your own.-- <br>
+<br>
+Dim them not, that so the dead <br>
+Rest appeased his thorn-crowned head. <br>
+<br>
+<br>
 #W.B. Yeats#
+<br>
+<br>
+**A Coat** <br>
+*Poetry Magazine, 1914* <br>
+<br>
+I made my song a coat <br>
+Covered with embroideries <br>
+Out of old mythologies <br>
+From heel to throat; <br>
+But the fools caught it, <br>
+Wore it in the world’s eyes <br>
+As though they’d wrought it. <br>
+Song, let them take it <br>
+For there’s more enterprise <br> 
+In walking naked. <br>
+<br>
 
-**A Coat**
-*Poetry Magazine, 1914*
+**A Dialogue of Self and Soul** <br>
+*The Poems of W.B. Yeats: A New Edition, 1933* <br>
+<br>
+I <br>
+My Soul. I summon to the winding ancient stair; <br>
+   Set all your mind upon the steep ascent, <br>
+   Upon the broken, crumbling battlement, <br>
+   Upon the breathless starlit air, <br>
+   Upon the star that marks the hidden pole; <br>
+   Fix every wandering thought upon <br>
+   That quarter where all thought is done: <br>
+   Who can distinguish darkness from the soul? <br>
+<br>
+My Self. The consecrated blade upon my knees <br>
+   Is Sato's ancient blade, still as it was, <br>
+   Still razor-keen, still like a looking-glass <br>
+   Unspotted by the centuries; <br>
+   That flowering, silken, old embroidery, torn <br>
+   From some court-lady's dress and round <br>
+   The wooden scabbard bound and wound, <br>
+   Can, tattered, still protect, faded adorn. <br>
+<br>
+My Soul. Why should the imagination of a man <br>
+   Long past his prime remember things that are <br>
+   Emblematical of love and war? <br>
+   Think of ancestral night that can, <br>
+   If but imagination scorn the earth <br>
+   And intellect its wandering <br>
+   To this and that and t'other thing, <br>
+   Deliver from the crime of death and birth. <br>
+<br>
+My Self. Montashigi, third of his family, fashioned it <br>
+   Five hundred years ago, about it lie <br>
+   Flowers from I know not what embroidery— <br>
+   Heart's purple—and all these I set <br>
+   For emblems of the day against the tower <br>
+   Emblematical of the night, <br>
+   And claim as by a soldier's right <br>
+   A charter to commit the crime once more. <br>
+<br>
+My Soul. Such fullness in that quarter overflows <br>
+   And falls into the basin of the mind <br>
+   That man is stricken deaf and dumb and blind, <br>
+   For intellect no longer knows <br>
+   Is from the Ought, or Knower from the Known— <br>
+   That is to say, ascends to Heaven; <br>
+   Only the dead can be forgiven; <br>
+   But when I think of that my tongue's a stone. <br>
+<br>
+II <br>
+My Self. A living man is blind and drinks his drop. <br>
+What matter if the ditches are impure? <br>
+What matter if I live it all once more? <br>
+Endure that toil of growing up; <br>
+The ignominy of boyhood; the distress <br>
+Of boyhood changing into man; <br>
+The unfinished man and his pain <br>
+Brought face to face with his own clumsiness; <br>
+<br>
+The finished man among his enemies?— <br>
+How in the name of Heaven can he escape <br>
+That defiling and disfigured shape <br>
+The mirror of malicious eyes <br>
+Casts upon his eyes until at last <br>
+He thinks that shape must be his shape? <br>
+And what's the good of an escape <br>
+If honour find him in the wintry blast? <br>
+<br>
+I am content to live it all again <br>
+And yet again, if it be life to pitch <br>
+Into the frog-spawn of a blind man's ditch, <br>
+A blind man battering blind men; <br>
+Or into that most fecund ditch of all, <br>
+The folly that man does <br>
+Or must suffer, if he woos <br>
+A proud woman not kindred of his soul. <br>
+<br>
+I am content to follow to its source <br>
+Every event in action or in thought; <br>
+Measure the lot; forgive myself the lot! <br>
+When such as I cast out remorse <br>
+So great a sweetness flows into the breast <br>
+We must laugh and we must sing, <br>
+We are blest by everything, <br>
+Everything we look upon is blest. <br>
+<br>
 
-I made my song a coat 
-Covered with embroideries 
-Out of old mythologies 
-From heel to throat; 
-But the fools caught it, 
-Wore it in the world’s eyes 
-As though they’d wrought it. 
-Song, let them take it
-For there’s more enterprise 
-In walking naked.
-
-
-**A Dialogue of Self and Soul**
-*The Poems of W.B. Yeats: A New Edition, 1933*
-
-I
-My Soul. I summon to the winding ancient stair;
-   Set all your mind upon the steep ascent,
-   Upon the broken, crumbling battlement,
-   Upon the breathless starlit air,
-   Upon the star that marks the hidden pole;
-   Fix every wandering thought upon
-   That quarter where all thought is done:
-   Who can distinguish darkness from the soul?
-
-My Self. The consecrated blade upon my knees
-   Is Sato's ancient blade, still as it was,
-   Still razor-keen, still like a looking-glass
-   Unspotted by the centuries;
-   That flowering, silken, old embroidery, torn
-   From some court-lady's dress and round
-   The wooden scabbard bound and wound,
-   Can, tattered, still protect, faded adorn.
-
-My Soul. Why should the imagination of a man
-   Long past his prime remember things that are
-   Emblematical of love and war?
-   Think of ancestral night that can,
-   If but imagination scorn the earth
-   And intellect its wandering
-   To this and that and t'other thing,
-   Deliver from the crime of death and birth.
-
-My Self. Montashigi, third of his family, fashioned it
-   Five hundred years ago, about it lie
-   Flowers from I know not what embroidery—
-   Heart's purple—and all these I set
-   For emblems of the day against the tower
-   Emblematical of the night,
-   And claim as by a soldier's right
-   A charter to commit the crime once more.
-
-My Soul. Such fullness in that quarter overflows
-   And falls into the basin of the mind
-   That man is stricken deaf and dumb and blind,
-   For intellect no longer knows
-   Is from the Ought, or Knower from the Known—
-   That is to say, ascends to Heaven;
-   Only the dead can be forgiven;
-   But when I think of that my tongue's a stone.
-
-
-II
-My Self. A living man is blind and drinks his drop.
-What matter if the ditches are impure?
-What matter if I live it all once more?
-Endure that toil of growing up;
-The ignominy of boyhood; the distress
-Of boyhood changing into man;
-The unfinished man and his pain
-Brought face to face with his own clumsiness;
-
-The finished man among his enemies?—
-How in the name of Heaven can he escape
-That defiling and disfigured shape
-The mirror of malicious eyes
-Casts upon his eyes until at last
-He thinks that shape must be his shape?
-And what's the good of an escape
-If honour find him in the wintry blast?
-
-I am content to live it all again
-And yet again, if it be life to pitch
-Into the frog-spawn of a blind man's ditch,
-A blind man battering blind men;
-Or into that most fecund ditch of all,
-The folly that man does
-Or must suffer, if he woos
-A proud woman not kindred of his soul.
-
-I am content to follow to its source
-Every event in action or in thought;
-Measure the lot; forgive myself the lot!
-When such as I cast out remorse
-So great a sweetness flows into the breast
-We must laugh and we must sing,
-We are blest by everything,
-Everything we look upon is blest.
-
-
-**The Song of Wandering Aengus**
-*The Wind Among the Reeds, 1899*
-
-I went out to the hazel wood,
-Because a fire was in my head,
-And cut and peeled a hazel wand,
-And hooked a berry to a thread;
-And when white moths were on the wing,
-And moth-like stars were flickering out,
-I dropped the berry in a stream
-And caught a little silver trout.
-
-When I had laid it on the floor
-I went to blow the fire a-flame,
-But something rustled on the floor,
-And someone called me by my name:
-It had become a glimmering girl
-With apple blossom in her hair
-Who called me by my name and ran
-And faded through the brightening air.
-
-Though I am old with wandering
-Through hollow lands and hilly lands,
-I will find out where she has gone,
-And kiss her lips and take her hands;
-And walk among long dappled grass,
-And pluck till time and times are done,
-The silver apples of the moon,
-The golden apples of the sun.
+**The Song of Wandering Aengus** <br>
+*The Wind Among the Reeds, 1899* <br>
+<br>
+I went out to the hazel wood, <br>
+Because a fire was in my head, <br>
+And cut and peeled a hazel wand, <br>
+And hooked a berry to a thread; <br>
+And when white moths were on the wing, <br>
+And moth-like stars were flickering out, <br>
+I dropped the berry in a stream <br>
+And caught a little silver trout. <br>
+<br>
+When I had laid it on the floor <br>
+I went to blow the fire a-flame, <br>
+But something rustled on the floor, <br>
+And someone called me by my name: <br>
+It had become a glimmering girl <br>
+With apple blossom in her hair <br>
+Who called me by my name and ran <br>
+And faded through the brightening air. <br>
+<br>
+Though I am old with wandering <br>
+Through hollow lands and hilly lands, <br>
+I will find out where she has gone, <br>
+And kiss her lips and take her hands; <br>
+And walk among long dappled grass, <br>
+And pluck till time and times are done, <br>
+The silver apples of the moon, <br>
+The golden apples of the sun. <br>
